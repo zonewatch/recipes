@@ -1,4 +1,4 @@
-# Black Bean and Mushroom Chili
+# Black Bean and Mushroom Chili (for slow cooker)
 
 Yields 10 cups
 
